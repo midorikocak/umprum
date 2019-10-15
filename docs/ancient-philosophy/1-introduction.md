@@ -37,7 +37,11 @@ We will talk on:
 
 ## Identity Politics
 
-Useful and unuseful labels. Politics was healthy contest of ideas. Right vs. Left. However it changed. Today is mostly about marketing of ideas and popularism. (Michelle Houllebecq is an important name.
+Useful and unuseful labels. Politics was healthy contest of ideas. Right vs. Left. However it changed. Today is mostly about marketing of ideas and popularism. (Michelle Houllebecq is an important name.)
+
+> Michel Houellebecq (French: [miʃɛl wɛlbɛk]; born Michel Thomas; 26 February 1956)[1] is a French author, filmmaker, and poet.
+
+> His first book was a biographical essay on the horror writer H. P. Lovecraft. Houellebecq published his first novel, Whatever, in 1994. His next novel, Atomised, published in 1998, brought him international fame as well as controversy. Platform followed in 2001. He published several books of poems, including The Art of Struggle (Le sens du combat) in 1996. After a publicity tour for Platform led to his being taken to court for inciting racial hatred, he moved to Ireland for several years.[2] He currently resides in France,[3] where he has been described as "France’s biggest literary export and, some say, greatest living writer."[4] In 2010 he published La Carte et le Territoire (published the same year in English as The Map and the Territory) which won the prestigious Prix Goncourt; and, in 2015, Submission. [Michel Houellebecq Wikipedia](https://en.wikipedia.org/wiki/Michel_Houellebecq)
 
 ## Concept Portmanteau
 
