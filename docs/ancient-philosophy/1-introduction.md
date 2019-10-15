@@ -1,4 +1,4 @@
-# Ancient Philosophy
+# Ancient Philosophy - Week 1
 
 [[toc]]
 
