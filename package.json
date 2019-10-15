@@ -20,5 +20,6 @@
   "bugs": {
     "url": "https://github.com/midorikocak/umprum/issues"
   },
-  "homepage": "https://github.com/midorikocak/umprum#readme"
+  "homepage": "https://github.com/midorikocak/umprum#readme",
+  "dependencies": {}
 }
