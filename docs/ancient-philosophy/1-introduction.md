@@ -1,5 +1,7 @@
 # Ancient Philosophy
 
+[[toc]]
+
 01.10.2019
 
 Is mostly about European body of knowledge.
