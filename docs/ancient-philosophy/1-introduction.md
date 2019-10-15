@@ -52,7 +52,7 @@ Is mostly footnotes of Plato. We will investigate Plato's cave.
 
 > Protagoras also is believed to have created a major controversy during ancient times through his statement that, "Man is the measure of all things", interpreted by Plato to mean that there is no absolute truth but that which individuals deem to be the truth.
 
-> Although there is reason to question the extent of the interpretation of his arguments that has followed, that concept of individual relativity was revolutionary for the time, and contrasted with other philosophical doctrines that claimed the universe was based on something objective, outside human influence or perceptions. [Protagoras Wikipedia](https://en.wikipedia.org/wiki/Protagoras)
+> Although there is reason to question the extent of the interpretation of his arguments that has followed, that concept of individual relativity was revolutionary for the time, and contrasted with other philosophical doctrines **that claimed the universe was based on something objective, outside human influence or perceptions.** [Protagoras Wikipedia](https://en.wikipedia.org/wiki/Protagoras)
 	
 	
 ### Myth of Prometheus
