@@ -164,7 +164,7 @@ Beauty vs Art (Art can be a bubble, can be isolated.) In Czechia, art is a close
 
 Cultivation of ourselves. %3 Art graduates are not working in Art. 
 
-Art will pop out anywhere anythime.
+**Art will pop out anywhere anythime.**
 
 * * *
 
