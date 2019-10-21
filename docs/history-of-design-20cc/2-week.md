@@ -126,3 +126,123 @@ He created buildings using just bricks, showing materials, being sincere to the 
 ![Acanthus Wallpaper 1875](https://images.fineartamerica.com/images-medium-large-5/acanthus-wallpaper-design-william-morris.jpg)
 
 They were criticised. They were not appropriate for workers small homes, but for bigger villas of rich people. 
+
+**Sussex Chair, 1865 Philip Webb**
+
+![Sussex Chair, 1865 Philip Webb](https://media.vam.ac.uk/media/thira/collection_images/2006AL/2006AL6986_jpg_ds.jpg)
+
+* It's a modest seat, a furniture
+* Very decorative in a way.
+
+## Birt of Nations and Nationalism
+
+* 19cc. Romanticism
+* Design can make a country richer
+* Every nation should have it's country
+* It should have design, inspired by folklore
+
+### Austro Hungarian Empire
+
+* Vienna (Design Museums)
+* It was behind Great Britain
+* Royal Imperial Porcelain Factory
+* Products were not fashionable
+* Illusive and not liked
+* Too expensive
+* Closed in 1864 after a long decline
+
+Museum was established, with a design school.
+
+Carl Richter, mass production is characterized by the lack of taste.
+
+1873 - World Exhibition at Wienna. It was a huge fail. Was done at the year of first financial crisis. Asian influence was apparent. (Chinese Vases.)
+
+1873 - Economic Crash - Affected small scale artisan production
+
+Political radicalization of the artisan class.
+
+School of design, it was seen as a supply for factories.
+
+Folk art & House Industry. Cultural cohesion, Habsburg Empire. 
+
+## Art Nouveau and it's roots.
+
+* Radim Vondracek
+* Lucie Vlckova 1900 Vital Art Nouveau
+
+Museum of Decorative Arts in Prague
+* Inspiration from Japan
+* Industrialization
+* Ornament
+* Evolved into **Art Deco**
+
+Bakumatsu - Edo dynasty, Opening after 250 years of isolation.
+* Harbours were opened.
+* Export to Europe has begun.
+* Influenced Art Nouveau and Impressionism
+* Japonsizme (Godwin, sideboard 1867)
+
+![Godwin, sideboard 1867](https://www.artic.edu/iiif/2/fdf3de5c-a06b-9e33-1682-a3723401f664/full/1200,/0/default.jpg?w=1200&h=800&fit=crop)
+
+**Japanese Pavillion - Paris World Expo - 1867**
+
+![Japanese Pavillion - Paris World Expo - 1867](https://www.bmiaa.com/wp-content/uploads/2017/06/01_Japanese_Satsuma_pavillion_at_the_French_expo_1867%C2%A9-Wikipedia.jpg)
+
+Hokusai, Kanagawa Wave vs. Van Gogh Starry Night.
+
+![Hokusai, Kanagawa Wave vs. Van Gogh Starry Night.](https://i.guim.co.uk/img/media/eef8c473a67cbf2709d8b0e34d0072345e0b246a/9_6_2574_1544/master/2574.jpg?width=620&quality=45&auto=format&fit=max&dpr=2&s=33671fd3c6c11f7aa048ea19652dfa9f)
+
+To read: [How Hokusai's Great Wave crashed into Van Gogh's Starry Night](https://www.theguardian.com/artanddesign/2018/sep/28/vincent-van-gogh-starry-night-hokusai-great-wave)
+
+Flat surfaces. European Symmetry vs. Japanese Asymmetry
+
+Kaisai Eisen 1905 vs. Klimt 1905
+
+Before there was horor vacui, whitespaces are mant to be filled. Emptiness was irritating.
+
+Simplicity, elegance, geometric forms vs. Nature
+
+Ukiyo-e prints. Use of a line. Ebonising the wood, making it look like Japanese Laquer. 
+
+**Forsyth, Folding screen. 1867**
+
+![Forsyth, Folding screen. 1867](http://s3.thingpic.com/images/ay/oYix6eMrWbnBhpacx1ns7G8J.jpeg)
+
+Kakiemon and Imari Porcelain.
+
+Christoper Dresser - 1834 - Known as the first industrial designer.
+
+**All decorated objects should appear to be what they are, they should not pretend to be what they are not.** This means a lot for functionalism. 
+
+* Botanical Drawings
+* Principle of Growth (Similar to Kupka)
+
+![Christopher Dresser](https://www.metmuseum.org/toah/banners/mobile/cdrs_bannermobile.jpg)
+
+[To read](https://www.metmuseum.org/toah/hd/cdrs/hd_cdrs.htm)
+
+He has influential books and lectures. 1873 Principals of decorative design. Traditional art of Japan. He travelled to Japan as Representative of V&A Museum.
+
+## 1862 World Exhibitionin London
+
+First encounter with Japanese Art.
+
+Beautiful thing has a commercial or monetary value.
+
+Utility. 
+
+**Toast Racks**
+
+![Toast Racks](https://www.metmuseum.org/toah/images/hb/hb_1985.311.jpg)
+
+**Teapot, 1878**
+
+![Teapot, 1878](http://www.vam.ac.uk/__data/assets/image/0005/198986/27108-large.jpg)
+
+* Objects are looking like signs
+* They are not only functional
+
+Art Nouveau becomes an union between art and industry.
+
+Next: **Czech Cubism**.
+
