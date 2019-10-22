@@ -223,7 +223,7 @@ Christoper Dresser - 1834 - Known as the first industrial designer.
 
 He has influential books and lectures. 1873 Principals of decorative design. Traditional art of Japan. He travelled to Japan as Representative of V&A Museum.
 
-## 1862 World Exhibitionin London
+## 1862 World Exhibition in London
 
 First encounter with Japanese Art.
 
